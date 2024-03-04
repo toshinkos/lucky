@@ -5,4 +5,4 @@ our name is hero! you may call us either that or whatevers in our nickname at th
 
 common fronters you may see around are...any number of our bennetts, and rowley. feel free to ask. we might not tell you. 
 
-we're the (albeit self proclaimed) no1 bennett friend. dni if u think u like him more than us /j. 
+we're the (albeit self proclaimed) no1 bennett fan. dni if u think u like him more than us /j. 
